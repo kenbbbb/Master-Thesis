@@ -1,0 +1,2 @@
+繁體中文的諷刺資料集
+資料來源為PTT BASKETBALLTW版
